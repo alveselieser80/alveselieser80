@@ -6,4 +6,4 @@ https://markdownguide.org/cheat-sheet/
 
 # 24 anos de eperiência na area de suprimentos
 
-# paixão eem aprender pela busca de conhecimento.
+# paixão em aprender pela busca de conhecimento.
