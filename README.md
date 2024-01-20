@@ -4,7 +4,6 @@ https://markdownguide.org/cheat-sheet/
 
 ## Gestor da Cadeia de Suprimentos
 
-# 24 anos de eperiência na area
+# 24 anos de eperiência na area de suprimentos
 
 # paixão eem aprender pela busca de conhecimento.
-
